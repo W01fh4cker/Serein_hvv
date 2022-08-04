@@ -7,4 +7,4 @@
 # 如何获取？  
 - 扫码加群，见群公告。  
 
-![2](https://s2.loli.net/2022/08/01/3otFgZlXsOUre4n.jpg)
+![](https://s2.loli.net/2022/08/05/ptw6iXUo2Cvz8bx.jpg)
